@@ -1,1 +1,1 @@
-# starpeace2018-hackathon
+# Equipe Star Peace - Space Apps 2018
